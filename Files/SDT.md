@@ -11,4 +11,4 @@
 
 #### List of Participants
 
-1. Jasleen Kaur
+1.
